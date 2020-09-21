@@ -7,8 +7,8 @@ Or are things gonna get complicated?
 Or not?
 
 Many people think that dating apps are rip offs. Johny, for one, strongly disagree with such unfounded accusations. 
-In school, his poor looks and pathetic features makes him look like a clown in front of the popular girls.
-Additionally, he is also a clumsy pig and tends to make a fool of himself in front of them.
+In school, his poor looks and pathetic facial features makes him look like a clown in front of the popular girls.
+Additionally, he is a clumsy pig and tends to make a fool of himself in front of them.
 
 Oh, how much does poor little Johny wish that his could become just slightly more attractive. 
 But then one day, his wishes came true, a ground-breaking app was released--Dateme!
@@ -23,15 +23,15 @@ Without a doubt, he was certain that one of the girls would agree to date him.
 
 Not long after he uploaded his profile, he already managed to secure a date. 
 To his delight, the girl that liked his profile was one of the cool girls from school.
-She probably could not recognise Johny as his profile name was actually 'John'.
+She probably could not recognise Johny as his profile name was actually 'Tom'.
 
 For a few days, Johny chatted with the girl enthusiastically online, while slowing gathering courage to organise a physical date with her.
 Soon, a date was finally organised.
-Johny was exhilatrated but also nervous as he feared that the girl would be disgusted if she were to find out who 'John' actually is.
+Johny was exhilatrated but also nervous as he feared that the girl would be disgusted if she were to find out who 'Tom' actually is.
 
 On the day of date, to Johny's utmost despair, the girl freaked out at the sight of him and immediately left the scene.
 In Johny's mind, the love of his life had abandoned him. 
-With broken heart, he decided gto write a song to mitigate his heartache.
+With broken heart, he decided to write a song to mitigate his heartache.
 
 This is what he wrote as the lyrics 
    "I’ve only left for a short while and already started to worry about how you’re doing today.
